@@ -5,4 +5,3 @@
 
 ### DM for more information about this project
 #### Discord: `@Apa-aja#5077`
-#### Email: `fachrozyrizki@gmail.com`
